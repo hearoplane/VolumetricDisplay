@@ -17,3 +17,5 @@ Fig 9.24
 
 http://eskistudio.com/technologies/3d-display/
 
+http://www.youtube.com/watch?v=slplze7sJOk
+
