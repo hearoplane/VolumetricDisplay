@@ -19,3 +19,5 @@ http://eskistudio.com/technologies/3d-display/
 
 http://www.youtube.com/watch?v=slplze7sJOk
 
+nice overview
+http://prezi.com/0mg_gzzl2wbp/3d-displays/
