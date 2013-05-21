@@ -21,3 +21,6 @@ http://www.youtube.com/watch?v=slplze7sJOk
 
 nice overview
 http://prezi.com/0mg_gzzl2wbp/3d-displays/
+
+Best so far....
+http://gl.ict.usc.edu/Research/3DTeleconferencing/
